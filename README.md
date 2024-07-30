@@ -9,3 +9,6 @@ https://www.dropbox.com/scl/fi/7utdcjly4hwb5q15h24yv/landsg.rar.zip?rlkey=hbd82w
 
 
 https://www.dropbox.com/scl/fi/i47q6gcm3je7v1kamqtev/Hyundai-Accent-2024-BETA-V1.5.zip?rlkey=0tq4looartzgnk376eo6nytob&st=zk1hktpp&dl=1
+
+
+https://www.dropbox.com/scl/fi/u3ut8octek9ia3fa793m7/taskhulix_by_3dm-2.rar.zip?rlkey=kftjyfvjkc78zi84iflhecz6a&st=esv49j36&dl=1
